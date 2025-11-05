@@ -28,7 +28,7 @@ A classic English dish inspired by Italian pasta dishes
 
 1. Brown the minced beef and cumberland sausage pieces in the olive oil in a large pot, then put these to one side
 2. In the same pot, fry the onion and celery until soft and translucent, then add the garlic and tomato puree and fry for another minute
-3. Add the carrots, mushrooms, crushed tomatoes, marmite, worcestershire sauce, white wine, water and herbs and season with salt and pepper to taste.
+3. Add the carrots, mushrooms, crushed tomatoes, marmite, worcestershire sauce, white wine, water and herbs and season with salt and pepper.
 4. Bring to a boil, then lower the heat and cook, partially covered for at least 2 hours, stirring occasionally.
 5. Cook the spaghetti according to the instructions on the packet.
 6. Serve by putting down a portion of spaghetti onto a plate or shallow bowl, then top with sauce and a sprinkling of grated cheese
